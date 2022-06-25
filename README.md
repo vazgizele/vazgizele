@@ -1,6 +1,6 @@
 - 👋 Olá, me chamo Gizele!
 - Meu prato favorito é Baião de dois!
-- ![Alt ou título da imagem](file:///C:/Users/vazgi/%C3%81rea%20de%20Trabalho/bai%C3%A3ode2/bai2.png)
+- ![Alt ou título da imagem](https://receitasmaravilhosa.com.br/wp-content/uploads/2022/06/Baiao-de-dois-ao-forno.png)
 - 
 
 ######  <h6> Curiosidade: Amo pipoca com maionese e sou criptomaníca!
