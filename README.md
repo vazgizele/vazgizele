@@ -1,2 +1,2 @@
 - 👋 Olá, me chamo Gizele!
-- Meu prato favorito é Baião de dos!
+- Meu prato favorito é Baião de dois!
