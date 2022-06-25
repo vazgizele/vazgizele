@@ -3,7 +3,7 @@
 - ![Alt ou título da imagem](https://receitasmaravilhosa.com.br/wp-content/uploads/2022/06/Baiao-de-dois-ao-forno.png)
 - 
 
-######  <h6> Curiosidade: Amo pipoca com maionese e sou criptomaníca!
+###### Curiosidade: Amo pipoca com maionese e sou criptomaníca! <h6>
 
   
   
