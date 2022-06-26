@@ -1,4 +1,4 @@
-## Olá pessoas! Eu sou a Gizele Vaz!
+## Olá pessoas🖐 Eu sou a Gizele Vaz!
 
 🧩 Iniciando em programação!
 
