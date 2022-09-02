@@ -1,1 +1,5 @@
-Gizele Vaz
+Gizele Vaz🙋🏽‍♀️ 
+
+Estudando Python!🤩
+
+Criptomaníaca 🤩
